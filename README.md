@@ -1,1 +1,1 @@
-# daya tec
+# day tec
